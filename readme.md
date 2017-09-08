@@ -9,7 +9,7 @@
 
 ### 简历投递邮箱
 
-meiqingguang@wanda.cn
+meiqingguang#wanda.cn
 
 ### 工作内容
 
